@@ -102,6 +102,7 @@ Ingredients:
 - 2 eggs
 - 2 tsp vanilla extract
 - 3 cups semisweet chocolate chips
+- 2 cups small marshmallows
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
