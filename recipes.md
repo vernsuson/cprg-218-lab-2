@@ -112,7 +112,7 @@ Instructions:
 3. Cream together butter, white sugar, and brown sugar until smooth.
 4. Beat in eggs one at a time, then stir in vanilla.
 5. Gradually blend in the dry ingredients.
-6. Stir in chocolate chips.
+6. Stir in chocolate chips and marshmallows.
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
